@@ -1,1 +1,1 @@
-This is a school project that the teacher said that at least one of the websites NEEDS to be 100% (personally not a fan) nothing on this project represents my capability as a programer (sorry for anything wrong english is not my first lenguage)
+This is a school project that the teacher said that at least one of the websites NEEDS to be 100% Ai (personally not a fan) nothing on this project represents my capability as a programer (sorry for anything wrong english is not my first lenguage)
